@@ -1,1 +1,0 @@
-# Headache-Detective-privacy-policy
